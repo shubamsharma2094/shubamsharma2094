@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **shubamsharma2094@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/thisissinghania](https://www.linkedin.com/in/shubamsharma2094/)
+- 📄 Know about my experiences [www.linkedin.com/in/shubamsharma2094](https://www.linkedin.com/in/shubamsharma2094/)
 
 - ⚡ Fun fact **People say, I am Funny**
 
